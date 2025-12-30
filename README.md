@@ -1,5 +1,5 @@
 # 💫 About Me:
-juste a cute mayu in vrchat :3<br><br>proxmox user <br><br>dell 3050<br>thinkpad t470s<br>hp elitebook 8570W
+juste a cute mayu in vrchat :3<br><br>proxmox user <br><br>dell 3050<br>thinkpad t470s<br>
 
 
 ## 🌐 Socials:
